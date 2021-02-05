@@ -1,1 +1,0 @@
-# KazSoul.github.io
